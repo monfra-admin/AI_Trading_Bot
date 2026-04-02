@@ -8,7 +8,6 @@ If you have any question or something, feel free to reach out me anytime via tel
 <br>
 #### 🌹 You're always welcome 🌹
 
-Telegram: [@jackhuang166](https://t.me/jackhuang166) <br>
 
 ## Features
 
